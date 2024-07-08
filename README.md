@@ -73,7 +73,7 @@ myčka<br>
 
 ![](https://d18-a.sdn.cz/d_18/c_img_QK_J0/wDUSos.jpeg?fl=res,749,562,3|wrm,/watermark/sreality.png,10|shr,,20|jpg,90)
 
-# 4) [Štěpánská, Brno - Trnitá](https://reality.idnes.cz/detail/pronajem/byt/brno-stepanska/667d6db0d7446fd1200797b4/) 
+## 4) [Štěpánská, Brno - Trnitá](https://reality.idnes.cz/detail/pronajem/byt/brno-stepanska/667d6db0d7446fd1200797b4/) 
 
 nájom + energie 18k<br>
 kauce 2 nájmy<br>
@@ -98,7 +98,7 @@ nevidno obývačku??
 
 ![](https://sta-reality2.1gr.cz/sta/compile/thumbs/6/0/6/028fc5417e63dc0c4e92ce2ae1805.jpg)
 
-# 5) [Hybešova, Brno-střed](https://www.reality-brno.net/pronajem/byty/byty-2-kk/brno/brno-stare-brno/century21-all-inclusive-pronajem-bytu-2-kk-55-m2-hybesova-2956193.html)
+## 5) [Hybešova, Brno-střed](https://www.reality-brno.net/pronajem/byty/byty-2-kk/brno/brno-stare-brno/century21-all-inclusive-pronajem-bytu-2-kk-55-m2-hybesova-2956193.html)
 
 nájom + energie 19.5k<br>
 kauce 40k, provize 23k<br>
@@ -106,7 +106,7 @@ od 15.4. ???<br>
 
 **Kontakt RK:**<br>
  Petr Vyskočil<br>
- ![](https://www.sreality.cz/img/icon-phone.svg) [+420 734 799 446](tel: +420 734 799 446)
+ ![](https://www.sreality.cz/img/icon-phone.svg) [+420 734 799 446](tel:+420734799446)<br>
 ![](https://www.sreality.cz/img/icon-email.svg) [petr.vyskocil@century21.cz](mailto:petr.vyskocil@century21.cz)<br>
 
 **Poloha:**<br>
