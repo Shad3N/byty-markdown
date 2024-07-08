@@ -1,6 +1,6 @@
 ## 1) Květinářská, Brno-město
 
-21.5k nájom + energie<br>
+nájom + energie 21.5k<br>
 provize/kauce neznáma<br>
 od 1.9.<br>
 
@@ -26,7 +26,7 @@ pekné zariadenie<br>
 
 ## 2) Chvalovka, Brno - Bystrc
 
-22.9k nájom + energie<br>
+nájom + energie 22.9k<br>
 provize/kauce neznáma<br>
 od 15.7.<br>
 
@@ -52,7 +52,7 @@ TV<br>
 
 ## 3) Wainerovo náměstí, Brno - Černovice
 
-22.7k nájom + energie<br>
+nájom + energie 22.7k<br>
 provize/kauce neznáma<br>
 od 1.8.<br>
 
