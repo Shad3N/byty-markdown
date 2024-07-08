@@ -58,7 +58,7 @@ od 1.8.<br>
 
 **kontakt RK:**<br>
 Daniela Riedlová<br>
- ![](https://www.sreality.cz/img/icon-phone.svg) [+420 778 049 444](tel:+420778049444), [+420 778 049 444](tel:+420778049444)<br>
+ ![](https://www.sreality.cz/img/icon-phone.svg) [+420 778 049 444](tel:+420778049444)<br>
 ![](https://www.sreality.cz/img/icon-email.svg) [riedlova@home4living.cz](mailto:riedlova@home4living.cz)<br>
 
 **Poloha:**<br>
