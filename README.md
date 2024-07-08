@@ -4,7 +4,7 @@ nájom + energie 21.5k<br>
 provize/kauce neznáma<br>
 od 1.9.<br>
 
-**kontakt RK:**<br>
+**Kontakt RK:**<br>
 Tomáš Hofírek<br>
 ![](https://www.sreality.cz/img/icon-phone.svg) [+420 777 358 948](tel:+420777358948)<br>![](https://www.sreality.cz/img/icon-email.svg) [tomas@bravis.cz](mailto:tomas@bravis.cz)<br>
 
@@ -30,7 +30,7 @@ nájom + energie 22.9k<br>
 provize/kauce neznáma<br>
 od 15.7.<br>
 
-**kontakt RK:**<br>
+**Kontakt RK:**<br>
 Bc. Jitka Dobrovolná<br>
  ![](https://www.sreality.cz/img/icon-phone.svg) [+420 778 977 088](tel:+420778977088)<br>
 ![](https://www.sreality.cz/img/icon-email.svg) [dobrovolna@wpartneri.cz](mailto:dobrovolna@wpartneri.cz)<br>
@@ -56,7 +56,7 @@ nájom + energie 22.7k<br>
 provize/kauce neznáma<br>
 od 1.8.<br>
 
-**kontakt RK:**<br>
+**Kontakt RK:**<br>
 Daniela Riedlová<br>
  ![](https://www.sreality.cz/img/icon-phone.svg) [+420 778 049 444](tel:+420778049444)<br>
 ![](https://www.sreality.cz/img/icon-email.svg) [riedlova@home4living.cz](mailto:riedlova@home4living.cz)<br>
