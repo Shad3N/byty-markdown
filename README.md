@@ -24,7 +24,7 @@ pekné zariadenie<br>
 
 ![](https://d18-a.sdn.cz/d_18/c_img_QI_Jv/Jw3XKM.jpeg?fl=res,749,562,3|wrm,/watermark/sreality.png,10|shr,,20|jpg,90)
 
-## 2) Chvalovka, Brno - Bystrc
+## 2) [Chvalovka, Brno - Bystrc](https://www.sreality.cz/detail/pronajem/byt/2+kk/brno-bystrc-chvalovka/293815628#img=1)
 
 nájom + energie 22.9k<br>
 provize/kauce neznáma<br>
@@ -50,7 +50,7 @@ TV<br>
 ![](https://d18-a.sdn.cz/d_18/c_img_QL_KG/UBwVz6.jpeg?fl=res,749,562,3|wrm,/watermark/sreality.png,10|shr,,20|jpg,90)
 
 
-## 3) Wainerovo náměstí, Brno - Černovice
+## 3) [Wainerovo náměstí, Brno - Černovice](https://www.sreality.cz/detail/pronajem/byt/2+kk/brno-cernovice-wainerovo-namesti/447825228#fullscreen=false&img=0)
 
 nájom + energie 22.7k<br>
 provize/kauce neznáma<br>
