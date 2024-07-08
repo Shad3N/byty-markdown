@@ -81,7 +81,7 @@ od 27.6. ???<br>
 
 **Kontakt RK:**<br>
 Jan Škárek <br>
- ![](https://www.sreality.cz/img/icon-phone.svg) [+420 732 265 510](tel:+420732265510)
+ ![](https://www.sreality.cz/img/icon-phone.svg) [+420 732 265 510](tel:+420732265510)<br>
 ![](https://www.sreality.cz/img/icon-email.svg) [skarek.jan@allriskreality.cz](mailto:skarek.jan@allriskreality.cz)<br>
 
 **Poloha:**<br>
