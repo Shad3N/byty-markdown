@@ -50,7 +50,7 @@ TV<br>
 ![](https://d18-a.sdn.cz/d_18/c_img_QL_KG/UBwVz6.jpeg?fl=res,749,562,3|wrm,/watermark/sreality.png,10|shr,,20|jpg,90)
 
 
-# 3) Wainerovo náměstí, Brno - Černovice
+## 3) Wainerovo náměstí, Brno - Černovice
 
 22.7k nájom + energie<br>
 provize/kauce neznáma<br>
